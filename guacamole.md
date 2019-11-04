@@ -1,8 +1,8 @@
 # Ingredients
-1. roses
+1. SALT
 dsa NO
 das NO
-sada
+
 2. guac	
 3. chilli
 4. lime
